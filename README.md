@@ -6,8 +6,6 @@ Hiện nay Fun88vc đổi sang Web mới: https://fun88.skin
 
  #Fun88 #fun88vc #fun88ml #fun88skin #fun88beauty #fun88bond
 
-https://fun88.skin/
-
 https://www.pinterest.com/fun88skin/
 
 https://www.youtube.com/channel/UCNPL0nNXzOqOuXGsLukNPcw
